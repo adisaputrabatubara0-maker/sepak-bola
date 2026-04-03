@@ -51,7 +51,7 @@ Dengan adanya VAR, perkembangan sepak bola menjadi semakin maju dan profesional.
 ## 🎥 Download Video Sejarah Sepak Bola
 Untuk memahami sejarah sepak bola lebih dalam, kamu bisa menonton video berikut:
 
-👉 [Download Video Sejarah Sepak Bola](https://sfl.gl/R9TTNXVI)
+👉 [Download Video Sejarah Sepak Bola](https://sfl.gl/vloiP87C)
 
 ---
 
