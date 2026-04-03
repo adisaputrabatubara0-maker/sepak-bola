@@ -2,6 +2,8 @@
 
 ## 📌 Pendahuluan
 Sejarah sepak bola merupakan salah satu topik yang banyak dicari oleh pecinta olahraga di seluruh dunia. Sepak bola tidak hanya sekadar permainan, tetapi juga telah menjadi bagian dari budaya global. Dalam artikel ini, kita akan membahas sejarah sepak bola dari awal mula hingga perkembangan sepak bola modern dengan teknologi VAR.
+<script src="https://pl29053723.profitablecpmratenetwork.com/47/37/fd/4737fdea3b4cad6f039a16a54212f70b.js"></script>
+
 
 ---
 
